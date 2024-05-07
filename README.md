@@ -20,4 +20,4 @@ My name is Ren (they/she).
 
 I'm an engineer who is passionate and fortunate enough to work in public interest tech. 
 
-Outside of work hours, I'm either collaborating with a friend on our [play-by-chat roleplay](https://en.wikipedia.org/wiki/Play-by-post_role-playing_game) of 15+ years or doing tricks in the air on aerial silks or lyra.
+Outside of work hours, I'm collaborating with a friend on our [play-by-chat roleplay](https://en.wikipedia.org/wiki/Play-by-post_role-playing_game) of 15+ years, doing tricks in the air on [aerial silks](https://en.wikipedia.org/wiki/Aerial_silk) or [aerial hoop](https://en.wikipedia.org/wiki/Aerial_hoop), or doing work at the community garden.
