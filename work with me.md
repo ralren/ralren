@@ -84,4 +84,9 @@ Beating around the bush. Be direct.
 - Stationery
 - Filipino American experience
 - Camping
+- Swimming in fresh water
+- Milk Tea
+- Baking
+- Writing
+- Animation
 - Anime/Manga (Madoka Magica)
