@@ -26,10 +26,7 @@ Do not be afraid to give feedback to me directly. Text preferable, especially if
 
 _What hours do you usually work?_
 
-At the time of writing this, I'm returning to my experiment of working 9 hour days Monday to Thursday so that I may have half-day Fridays. In an ideal world, I would work 
-
-M-Th 7-4 PM Pacific
-F 7-11 AM Pacific
+I have "core" hours where I should be quick to respond. M-F 8-2 PM Pacific. I usually am around the hour before and after but I tend to be more async in comms as I wind up/down for the day.
 
 _When do you prefer to work alone, versus in groups? How do your energy levels fluctuate throughout the day?_
 
